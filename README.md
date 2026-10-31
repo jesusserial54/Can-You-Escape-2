@@ -217,4 +217,4 @@ Can You Escape 2 is offered as a complete free version with all features and upd
 Ready to dive into the world of puzzles? Download **Can You Escape 2** now and start your adventure!
 
 ---
-**Last updated:** 2026-10-30 22:52:54 UTC
+**Last updated:** 2026-10-31 02:09:53 UTC
